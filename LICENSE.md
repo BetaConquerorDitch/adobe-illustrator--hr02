@@ -1,4 +1,4 @@
-
+Enhance Adobe Illustrator for macOS with Adobe Illustrator for macOS smart Action - UI themes and content-aware fill, the #1 action. Includes UI themes and content-aware fill for
 
 
 
